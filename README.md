@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on hackathons.
 - 📫 How to reach me....instagram account @wangai_mburu
 
+Only compare yourself to your past self. Have your abilities and knowledge improved from where you were last week, last month, or last year? Be proud of the progress that you’ve made!
 - The strongest assets you can have as a student are a desire to build, a problem-solving mind, and persistence in the face of setbacks.
 
 <!---
