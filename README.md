@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AntonyWangai
 - 👀 I’m interested in Blockchain technology especially its application in web3 and metaverse.
-- 🌱 I’m currently learning computer science and thus far i have not learnt alot but i'm getting there.
+- 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on hackathons.
 - 📫 How to reach me....instagram account @wangai_mburu
 
